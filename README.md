@@ -19,4 +19,5 @@ To demonstrate my ability to:
 Most materials are written in English to support international and remote work opportunities.
 
 👩‍💻 About me
+
 I am a professional focused on communication, learning, and facilitation, with experience in adapting quickly to new fields and transforming knowledge into practical training materials.
